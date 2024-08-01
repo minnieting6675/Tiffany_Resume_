@@ -1,3 +1,3 @@
-# Hi, I’m Tiffany 👼
+# Hi there, I’m Tiffany 👼
 
 - 👀 I’m learning coding...
